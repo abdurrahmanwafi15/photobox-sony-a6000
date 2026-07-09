@@ -1,1 +1,0 @@
-# photobox-sony-a6000
